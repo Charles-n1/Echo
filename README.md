@@ -10,7 +10,7 @@ Un écho de mes envies. Une tentative de se retrouver dans ses anciennes passion
 En termze d'analogie, c'est comme si je criais (par conséquent, transmettre mon projet sous forme d'ondes) dans une cave. un projet : J'aimerais voir si cet echo, me parviendra. Et c'est stylé comme nom. ça fait un peu, mystère, galaxie, beau gosse. J'aime beaucoup comme nom.
 
 L'objectif de Echo:
-J'aimerais voir si, la robotique (et définitvement). Est quelque chose qui me passionnera, et que j'aimerais faire dans les années qui suivent. 
+J'aimerais voir si, la robotique (et définitvement). Est quelque chose qui me passionnera, et que j'aimerais faire dans les années qui suivent.
 Parce que personnellement, durant mon enfance, J'ai eu une obsession pour les robots. Je les dessinais, je les savourait, c'était une véritable histoire d'amour lol. Mais entre temps, (littéralement), beaucoup de choses ont changés. Et je trouve tjrs les robots stylés de malade. Mais, Est-ce que j'aimerais y travailler (sérieusement) ? Parce que rêver c'est bien. Mais on aura jamais la certitude...
 J'espère, réellement de tout coeur. Que je saurais atteindre la fin de ce projet. Pour une fois.
 
